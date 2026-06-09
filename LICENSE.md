@@ -1,4 +1,4 @@
-# 
+# secure Scripts for plants vs brainrots is the best plants vs brainrots Script, featuring unlimited stamina and one-hit kill. Safe and powerful for
 
 
 
